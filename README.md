@@ -1,3 +1,7 @@
+
+![obraz](https://github.com/tom-sapletta-com/linfluencer/assets/5669657/7290249a-7c41-41d6-a1bc-a2e58855e189)
+
+
 # linfluencer degrees
 
 Here we embark on a conceptual journey through these levels, reimagined for linfluencers, from initiation to pinnacle, each level, offers a step forward in mastery, influence, and ethical leadership, ensuring that the linfluencer not only grows in reach but also in depth and positive impact on the world.
