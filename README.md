@@ -1,5 +1,5 @@
 
-![obraz](https://github.com/tom-sapletta-com/linfluencer/assets/5669657/7290249a-7c41-41d6-a1bc-a2e58855e189)
+![linfluencer degrees - https://tom-sapletta-com.github.io/linfluencer/](https://github.com/tom-sapletta-com/linfluencer/assets/5669657/388af3ff-bb81-4465-852f-3f00c1af4121)
 
 
 # [linfluencer degrees](https://tom-sapletta-com.github.io/linfluencer/)
